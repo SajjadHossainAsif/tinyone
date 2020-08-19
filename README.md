@@ -1,1 +1,1 @@
-# tinyone
+https://sajjadhossainasif.github.io/tinyone/.
